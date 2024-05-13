@@ -1,0 +1,1 @@
+# aiaiyasumi.github.io
